@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @learningmzy
+- 👀 I’m interested in stock research, reading, calligraphy
+- 🌱 I’m currently learning value investment, python
+- 📫 My email address is sr_zy@outlook.com
